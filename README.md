@@ -1,6 +1,6 @@
 -❀•°❀°•❀❀•°❀°•❀❀•°❀°•❀❀•°❀°•❀
 -  👋 Hi, I’m @LaurenFaltisek
-- 👀 I’m interested in ... |Learning| |C++, C# Python and Responsive web design| |Video Game Designing| 
+- 👀 I’m interested in ... |Learning| |C++, C# Python Geting Familiar With JavaScript| |Video Game Designing| 
 - 🌱 I’m currently learning ... 
 - 💞️ I’m looking to collaborate on ...|Making Apps|-|Building A Websight|-|Creating A Video Game|-|Designing|
 - 📫 How to reach me ...
