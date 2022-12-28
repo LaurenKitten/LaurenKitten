@@ -1,5 +1,5 @@
 -❀•°❀°•❀❀•°❀°•❀❀•°❀°•❀❀•°❀°•❀
--  👋 Hi, I’m @LaurenKitten
+-  👋 Hi, I’m @LaurenFaltisek
 - 👀 I’m interested in ... |Learning| |C++, C# Python and Responsive web design| |Video Game Designing| 
 - 🌱 I’m currently learning ... 
 - 💞️ I’m looking to collaborate on ...|Making Apps|-|Building A Websight|-|Creating A Video Game|-|Designing|
