@@ -1,8 +1,8 @@
 -❀•°❀°•❀❀•°❀°•❀❀•°❀°•❀❀•°❀°•❀
 -  👋 Hi, I’m @LaurenFaltisek
-- 👀 I’m interested in ... |Learning| |C++, C# Python Geting Familiar With JavaScript| |Video Game Designing| 
+- 👀 I’m interested in ... |Learning New Things-|Metting New Goals|
 - 🌱 I’m currently learning ... 
-- 💞️ I’m looking to collaborate on ...|Making Apps|-|Building A Websight|-|Creating A Video Game|-|Designing|
+- 💞️ I’m looking to collaborate on ...|Team-Work|-|Working with others|
 - 📫 How to reach me ...
 - |Phone Number:|  832-302-8005
 - |Email:| Laurenkitten0@gmail.
