@@ -1,10 +1,11 @@
 -❀•°❀°•❀❀•°❀°•❀❀•°❀°•❀❀•°❀°•❀
 -  👋 Hi, I’m @LaurenFaltisek
-- 👀 I’m interested in ... |Learning New Things-|Metting New Goals|
+- 👀 I’m interested in ... {Learning New Lanuages}-{Creating Projects}
 - 🌱 I’m currently learning ... 
-- 💞️ I’m looking to collaborate on ...|Team-Work|-|Working with others|
+- 💞️ I’m looking to collaborate on ...{N/A For Right now}
+- -❀•°❀°•❀❀•°❀°•❀❀•°❀°•❀❀•°❀°•❀
 - 📫 How to reach me ...
-- |Phone Number:|  832-302-8005
+- |Phone Number:|  979-217-0449
 - |Email:| Laurenkitten0@gmail.
 <!---
 LaurenKitten/LaurenKitten is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
