@@ -1,7 +1,7 @@
 -❀•°❀°•❀❀•°❀°•❀❀•°❀°•❀❀•°❀°•❀
 -  👋 Hi, I’m @LaurenFaltisek
 - 👀 I’m interested in ... {Learning New Lanuages}-{Creating Projects}
-- 🌱 I’m currently learning ... 
+- 🌱 I’m currently learning ... N/A
 - 💞️ I’m looking to collaborate on ...{N/A For Right now}
 - -❀•°❀°•❀❀•°❀°•❀❀•°❀°•❀❀•°❀°•❀
 - 📫 How to reach me ...
